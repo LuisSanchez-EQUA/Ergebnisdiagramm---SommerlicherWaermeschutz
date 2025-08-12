@@ -1,0 +1,2 @@
+# Ergebnisdiagramm - SommerlicherWaermeschutz
+
